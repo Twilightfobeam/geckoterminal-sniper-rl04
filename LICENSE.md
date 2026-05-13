@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with top geckoterminal sniper bot | multi-wallet-support + new-token-detection, the #1 geckoterminal sniper bot. Includes multi-wallet-support and
 
 
 
